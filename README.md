@@ -1,5 +1,9 @@
 ## HAIIII CHECK MY STRAWPAGE 
 
+also please DNC my skins :-:
+
+
+
 <!--
 **MiyanogirlyPoP/MiyanogirlyPoP** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
