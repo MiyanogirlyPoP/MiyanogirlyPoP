@@ -1,6 +1,10 @@
 ## HAIIII CHECK MY STRAWPAGE 
 
-also please DNC my skins :-:
+
+
+
+https://github.com/user-attachments/assets/15bd534c-6662-413a-bfa6-6c7f28eebdd8
+
 
 
 
