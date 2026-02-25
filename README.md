@@ -1,12 +1,13 @@
-## HAIIII CHECK MY STRAWPAGE 
+HAIIII
 
 
 
 
+![file_00000000b784720c92c9423589af1898](https://github.com/user-attachments/assets/0c58efb0-0254-4671-948f-e0b00e45b1b8)
 
 
 
-https://github.com/user-attachments/assets/8498deb1-2d1d-4a27-80df-ea6106a1aae5
+
 
 
 
