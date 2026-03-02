@@ -8,10 +8,6 @@ HAIIII
 
 
 
-https://github.com/user-attachments/assets/f8ebd504-bd23-4955-9f44-9f12345ce58b
-
-
-
 
 
 
