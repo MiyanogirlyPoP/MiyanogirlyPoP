@@ -1,7 +1,6 @@
-HAIIII
 
 
-https://i.pinimg.com/736x/87/8f/88/878f88410cf362ab1b990cd819c145a2.jpg
+
 
 
 
