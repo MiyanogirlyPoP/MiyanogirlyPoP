@@ -2,7 +2,14 @@
 ꜱᴋɪɴɴʏ                                                         
 ʀɪᴄʜ
 ʙɪᴛᴄʜ
-<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/283d9024-20f8-4e36-96eb-c6c8555844c6" />
+
+
+<img width="995" height="658" alt="Snímek obrazovky 2026-04-30 195618" src="https://github.com/user-attachments/assets/b9e782a5-7b10-497d-9037-d42a40c1f905" />
+
+
+
+
+![](https://komarev.com/ghpvc/?username=your-github-username)
 
 
 
