@@ -1,7 +1,11 @@
 ᴛᴀʟʟ
-ꜱᴋɪɴɴʏ
+ꜱᴋɪɴɴʏ                                                         
 ʀɪᴄʜ
 ʙɪᴛᴄʜ
+<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/283d9024-20f8-4e36-96eb-c6c8555844c6" />
+
+
+
 
 
 
